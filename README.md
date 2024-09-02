@@ -16,4 +16,5 @@ Eu sou Rakelly👑
 
 
 
-.[].([)](https://encrypted-tbn0.gstatic.com/images?q=tbn:ANd9GcQYEWQJ_egmWzrOPBUKDKAWJKYikMCl_GPByQ&s).
+.[].().[
+](https://encrypted-tbn0.gstatic.com/images?q=tbn:ANd9GcQYEWQJ_egmWzrOPBUKDKAWJKYikMCl_GPByQ&s)
